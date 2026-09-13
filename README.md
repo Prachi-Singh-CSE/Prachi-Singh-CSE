@@ -9,7 +9,7 @@
 ---
 
 ### 🔗 Connect with me:
-- [LinkedIn](https://www.linkedin.com/in/prachi-singh-24a479373 
+- LinkedIn : https://www.linkedin.com/in/prachi-singh-24a479373 
 - ✉️ Email: prachisingh35045@gmail.com  
 
 ---
